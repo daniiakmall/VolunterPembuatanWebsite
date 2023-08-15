@@ -6,3 +6,4 @@ Silahkan gunakan format berikut :
 
 Berikut daftar Volunter yang diterima :  
 * Satria Alief, [Linkedin.com](https://www.linkedin.com/in/satriaalieff/)
+* Putra Hidayat, [Instagram.com](https://www.instagram.com/satriaalieff/)
